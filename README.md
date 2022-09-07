@@ -2,4 +2,3 @@
 - 👀 I’m interested in playing indoor games,learning new technologies.
 - 🌱 I’m currently pursuing masters.
 - I worked in Capgemini Technology solutions Pvt Ltd from past 2.7 years.
-- 
